@@ -27,7 +27,7 @@
 
 --- 
 ## UCC 🎞️
-
+[![Video Label](https://i.ytimg.com/vi/AOGufeS9SCw/hq720.jpg?sqp=-oaymwEcCNAFEJQDSFXyq4qpAw4IARUAAIhCGAFwAcABBg==&rs=AOn4CLBqCE-wq0HsJjODJifiAEc-_c7d9g)](https://www.youtube.com/watch?v=AOGufeS9SCw)
 ---
 # 👕기획 배경
 
